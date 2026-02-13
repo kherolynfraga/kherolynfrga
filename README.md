@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=kherolynfragacolor=006bed)
+![](https://komarev.com/ghpvc/?username=kherolynfragaco&lor=006bed)
 
 ## Sobre mim
 
